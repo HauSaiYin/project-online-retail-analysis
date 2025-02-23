@@ -14,8 +14,15 @@ UK has the highest sales (around 9 million)
 Netherlands, EIRE, Germany and France are the next 4 countries each having a sales of more than 2 million
 Since these countries cover the major sales revenues, we need to pay special attention to customers in these countries and make sure our product quality and service are the best. Also to break dependancy of sales from a single country we can focus on expanding sales in other countries as well
 
+![image](https://github.com/user-attachments/assets/9490ae45-4be4-49b5-8d94-e6e8bbc4541f)
+
+
+
+
 
 ![image](https://github.com/user-attachments/assets/bfc3a38a-bda6-4b2d-b683-360ba4733ae8)
+
+
 
 
 ![image](https://github.com/user-attachments/assets/6246ce2d-34e5-4928-917c-4d3ff7f63c04)
